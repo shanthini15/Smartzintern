@@ -1,1 +1,1 @@
-# Smartzintern
+# Smartinternz
